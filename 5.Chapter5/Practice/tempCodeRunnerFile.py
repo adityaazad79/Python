@@ -1,0 +1,1 @@
+riends are same, the latter's favourite language will replace the former's favourite language
